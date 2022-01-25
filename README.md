@@ -1,0 +1,1 @@
+# niewiempocotorobie.pl
